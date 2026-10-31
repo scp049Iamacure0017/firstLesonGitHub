@@ -1,1 +1,36 @@
-# firstLesonGitHub
+# So he created Deltarune
+** Gaster
+## 17
+![this is img](https://i.pinimg.com/1200x/0e/3e/54/0e3e54d1b519e1db7600fed4dc15b896.jpg)
+
+...
+
+W.D. Gaster in Deltarune
+Built it all from an empty room
+Mike the Cat, yeah, that is Gaster
+Even the Titan that is Gaster
+In the bunker sits that Gaster
+Entry 17's own master
+Kris is Gaster, Susie, Gaster
+Noelle, Gaster, all are Gaster
+The Knight is an amalgamate
+Made by Gaster, intricate
+Gaster is actually green
+Dad of Sans and Paps, I mean
+He fell into his own machine
+Split to atoms, quite a scene
+He's a legend, immune to ruin
+So he created Deltarune
+Dess is missing, that is Gaster
+Dark world also surely Gaster
+And the vessel that we loot
+Well, that is also Gaster's doom
+And actually, damn Deltarune
+That is also fucking Gaster
+Change six letters, do it faster
+And the result is
+(In a corrupted voice)
+Gaster
+
+
+[17](https://genius.com/Foxy-grandpa-gasters-sea-shanty-lyrics)
